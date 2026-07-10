@@ -1,1 +1,1 @@
-I wanna badges and I will get them
+I wanna badges and I will get them.
